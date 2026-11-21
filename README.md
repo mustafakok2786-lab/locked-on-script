@@ -1,2 +1,2 @@
 # obfuscated
-g
+its locking someone and coloring someone
